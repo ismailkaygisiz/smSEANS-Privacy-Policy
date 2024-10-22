@@ -1,0 +1,1 @@
+# smSEANS-Privacy-Policy
